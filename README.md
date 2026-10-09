@@ -2,3 +2,9 @@
 
 This is my repo for MDIA 1620, the worst class ever!
 HUUUUUIIII
+sldfjskldfjksdfjkasdjfklajsdf
+asdf
+ajsdklfasd
+fjaksdf
+asdfjkas
+df
